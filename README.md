@@ -1,1 +1,0 @@
-# anthony-garcia.github.io
